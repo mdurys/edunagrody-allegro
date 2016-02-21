@@ -1,0 +1,1 @@
+# edunagrody-allegro
